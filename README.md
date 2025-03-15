@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @luqmanabdirashid
+- 👋 Hi, I’m @lichtaman
 - 👀 I’m interested in all
 - 🌱 I’m currently learning everything
 - 💞️ I’m looking to collaborate on everything
